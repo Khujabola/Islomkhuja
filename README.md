@@ -1,0 +1,2 @@
+# Islomkhuja
+Oddiy bola
